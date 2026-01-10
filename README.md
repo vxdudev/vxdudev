@@ -102,8 +102,7 @@ I focus on:
 
 ## 📫 Contact
 
-* 📧 Email: *available upon request*
-* 💼 LinkedIn: *add if public*
+* 📧 Email: krisztianpletser62@gmail.com
 * 🌍 Location: Hungary
 
 ---
