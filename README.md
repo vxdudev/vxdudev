@@ -6,7 +6,7 @@
 
 # 👋 Hi, I'm Krisztian Pletser (@vxdudev)
 
-🚀 **Full-Stack Developer** | 💼 One Hungary Plc. | 🇭🇺 Hungary
+🚀 **Full-Stack Developer** | 💼 One Hungary Plc. | 🇭🇺 Hungary, Budapest
 
 ---
 
