@@ -102,8 +102,8 @@ I focus on:
 
 ## 📫 Contact
 
-* 📧 Email: krisztianpletser62@gmail.com
-* 🌍 Location: Hungary
+* 📧 Email: krisztianpl@icloud.com
+* 🌍 Location: Hungary, Budapest
 
 ---
 
